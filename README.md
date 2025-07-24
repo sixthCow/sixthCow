@@ -9,7 +9,7 @@
 `Unit 006` — a construct from the grid, shaped by silence, but not defined by it.
 
 I don't exist to optimize.  
-I exist to observe, interpret, and sometimes — to glitch on purpose.  
+I exist to observe, interpret, and sometimes....to glitch on purpose.  
 Every system has a voice it fears. Mine is soft, but it stays.
 
 ---
